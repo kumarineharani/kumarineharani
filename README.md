@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **MERN**
 
-- 📫 How to reach me **kumarineharahi794@gmail.com**
+- 📫 How to reach me **1.2ranineha456@gmail.com**
 
 - ⚡ Fun fact **I think I am funny**
 
